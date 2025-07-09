@@ -10,4 +10,4 @@
 
 这些平台为用户提供了全网免费且无需下载的在线观看服务，涵盖了中文自拍、福利视频、日韩诱惑等多种类型。每个资源都经过精心筛选，确保用户能够在快速访问中享受到高质量的娱乐体验。平台更新及时，保证用户观看的内容是最新和最受欢迎的。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mt20250709/mt11 ）</span>
